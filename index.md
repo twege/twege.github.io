@@ -10,3 +10,7 @@ Arnoldsch started as an action hero with Conan, the Barbarian. There he didn't t
 * Can hardly remember the whole Conan movie from ancient times.
 * How many people did he kill ...?
 * So do like him as well!
+
+
+Have nice last words to your adversaries: 
+> Hasta la vista, Baby!
